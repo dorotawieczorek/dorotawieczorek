@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @dorotawieczorek
+- 👀 I'am looking for diamonds in the IT field
+- 🌱 I’m open to new concats
